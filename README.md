@@ -8,5 +8,5 @@ Concepcion Grande, Naga City 4400
 
 
 
-Hobbies:
+Hobbies: lulu, 3x times a day
 
